@@ -1,8 +1,19 @@
-- 👋 Hi, I’m @hanya-Neva
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+Hello 👋 
+Kenalan dulu ga niii😁 
+Kenalan aja ya 😂 
+Aku siapa nih, tebak 😋 
+Yah salah tebakannya 😢 
+Aku pacar kamu 🙂 
+Aku sendiri sih yang mengklaim itu 😶 
+Lagi ngapain niiii 👉👈 
+Kangen aku gaaa
+Aku kangen tauk 😊 
+Mau nelfon ga nii 🤗 
+Semangat ya untuk hari ini dan hari berikutnya sayang ☺️ 
+Lop yu 😋
+Canda sayang 😂 
+Love you 😘
+
 
 <!---
 hanya-Neva/hanya-Neva is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
